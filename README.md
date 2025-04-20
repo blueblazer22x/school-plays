@@ -1,5 +1,5 @@
 # school plays
-Follow the links below to download recent CCCS school plays.  After clicking the link, click on the 3-dot menu in the upper right part of the page, then click "download file".
+Follow the links below to download recent CCCS school plays.  After clicking the link, click on the 3-dot menu in the upper right part of the page, then click "Download to device".  These files are large and can be played on the Media Player app in Windows or most other media players on your phone or computer.  
 
 
 
